@@ -1,1 +1,0 @@
-CS2250 Personal website 
